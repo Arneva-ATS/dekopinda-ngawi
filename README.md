@@ -1,1 +1,1 @@
-# dekopinda-ngawi
+# dekopinda-karanganyar
